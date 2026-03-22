@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FakeApate
-- 👀 I’m interested in Spaceships, Airplanes, Apex Legends
+- 👀 I’m interested in international cyberwars and their threats.
 - 🌱 I’m currently learning how to learn efficiently 
 - 💞️ I’m looking to collaborate on none
 - 📫 How to reach me: fakeapate@pm.me
